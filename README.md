@@ -1,2 +1,0 @@
-# bhanuraju.github.io
-website 
